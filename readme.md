@@ -1,0 +1,1 @@
+A light, foamy cappuccino just like they drink in Italy is at your fingertips with this traditional recipe. Make it with home-brewed espresso and steamed milk for a delicious morning pick-you-up. You could use an espresso machine or pick up a handy electric milk frother for a fraction of the cost.
